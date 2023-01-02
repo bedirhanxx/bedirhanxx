@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @bedirhanxx
+- 👀 I’m interested in game development
+- 📫 How to reach me thebedirhanucak@gmail.com
