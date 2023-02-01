@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @bedirhanxx
-- 👀 I’m interested in game development
+- 👀 I’m interested in game development 11 years for developing games in unity.
 - 📫 How to reach me thebedirhanucak@gmail.com
